@@ -1,5 +1,5 @@
 ### People of earth, I come in peace 👋
- Welcome to this subspace; Some of the things done : 
+ Welcome to my subspace
  
  
 <br><br>
